@@ -1,4 +1,4 @@
 joshuagibson
 ============
 
-Sassoon Teacher Joshua Gibson's personal portfolio
+Joshua Gibson's personal portfolio
